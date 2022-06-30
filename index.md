@@ -7,7 +7,7 @@
 
 My favorite manga is [blueperiod](https://en.wikipedia.org/wiki/Blue_Period_(manga))
 
-![Image]()
+![Image](Tokyo.jpeg)
 
 > TV version is not that good
 
